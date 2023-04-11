@@ -1,1 +1,1 @@
-# Wist je dat 57,7 °C de hoogste buitentemperatuur ooit gemeten is?
+# Wist je dat -89,2 °C de laagste buitentemperatuur ooit gemeten is?
